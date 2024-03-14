@@ -1,0 +1,2 @@
+All the training floor maps used to be here and it's 2.42GB. Here is the link:
+https://artslondon-my.sharepoint.com/:f:/g/personal/l_pan0320191_arts_ac_uk/Eue_ZNrp7MBGjmC6Qa4cKoUB5N1E8QRQlw3TG-730vJ9Aw?e=5MZMX7

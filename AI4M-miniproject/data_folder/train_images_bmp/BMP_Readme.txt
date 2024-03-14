@@ -1,0 +1,1 @@
+All converted bmp files are in this folder and its size was 52GB. Since bmp files will not be used by this project, I will not upload such a large file to the cloud.
